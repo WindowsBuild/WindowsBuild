@@ -15,7 +15,9 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![](https://tenor.com/8raC.gif)
-I mostly program in php and javascript....
+![](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fmedia.tenor.com%2Fimages%2Ff0d5d11565c321ef7b925a3777b358ce%2Ftenor.gif&f=1&nofb=1)
+
+# Hello!
+Hai I am windows, a programmer from vancouver. I mostly program in php and javascript! 
 
 <3
