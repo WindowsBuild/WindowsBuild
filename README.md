@@ -15,6 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
+![](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fmedia.tenor.com%2Fimages%2Ff0d5d11565c321ef7b925a3777b358ce%2Ftenor.gif&f=1&nofb=1)
 I mostly program in php and javascript....
 
 <3
