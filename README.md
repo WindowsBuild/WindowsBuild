@@ -19,9 +19,13 @@ Here are some ideas to get you started:
 
 # NINJA FORTNITE
 ![](https://cdn.discordapp.com/attachments/521546183529857025/521551062491070465/1.gif)
+l
 ![](https://cdn.discordapp.com/attachments/521546183529857025/521551066295304193/2.gif)
+l
 ![](https://cdn.discordapp.com/attachments/521546183529857025/521551069004824576/3.gif)
+l
 ![](https://cdn.discordapp.com/attachments/521546183529857025/521551072494616580/4.gif)
+l
 ![](https://cdn.discordapp.com/attachments/521546183529857025/521551074830843904/5.gif)
 
 
