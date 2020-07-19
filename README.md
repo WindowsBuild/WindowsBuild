@@ -18,8 +18,8 @@ Here are some ideas to get you started:
 ![](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fmedia.tenor.com%2Fimages%2Ff0d5d11565c321ef7b925a3777b358ce%2Ftenor.gif&f=1&nofb=1)
 
 # am I a weeb? 
-yes
-![](https://tenor.com/view/hayasaka-kaguya-hey-hey-hey-shinomiya-love-is-war-gif-17143662)
+no... maybe....
+![](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fhugelolcdn.com%2Fi%2F510003.png&f=1&nofb=1)
 
 # am i a furry?
 no eww why would you ask a question like that?
